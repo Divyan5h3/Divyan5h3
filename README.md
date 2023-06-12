@@ -1,5 +1,5 @@
 # 💫 About Me:
-Im currently a computer science sophomore and a James Scholar at the University of Illinois. My vision is to ultimately help people by providing them with technology that can impact their lives positively.
+Im currently a rising junior and a James Scholar studying Computer Science at the University of Illinois. My vision is to ultimately help people by providing them with technology that can impact their lives positively.
 
 
 ## 🌐 Socials:
